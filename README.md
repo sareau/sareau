@@ -1,4 +1,4 @@
-##we do a little trolling :trollface:
+## we do a little trolling :trollface:
 
-bi/pan
-any pronouns
+- bi/pan
+- any pronouns
